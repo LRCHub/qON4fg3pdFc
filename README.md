@@ -1,4 +1,4 @@
-# 電音部、犬吠埼紫杏 (CV: 長谷川玲奈) – good night baby
+# 電音部、犬吠埼紫杏 (CV: 長谷川玲奈) – good night baby（feat. Moe Shop）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
